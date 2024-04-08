@@ -1,3 +1,3 @@
 # Colocviu1
-Barbusi Darius-Alexandru
+Barbusi Darius-Alexandru  
 344C1
